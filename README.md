@@ -54,14 +54,33 @@ The speakers were engaging and approachable, addressing our queries with enthusi
 
 “Education is the most powerful weapon which you can use to change the world.” – Nelson Mandela
 
-**✨ Reflections & Takeaways**
+**5. Guest Lecture by Arshdeep Singh 🥗**
 
-This day was not just about assessments or scholarships—it was about growth, awareness, and possibilities. Key takeaways include:
+we had an amazing session with guest lecturer Arshdeep Singh! 🎉 The lecture focused on food, nutrition, and healthy lifestyle choices. 🥦🍇
 
-✅ Importance of self-assessment through proficiency tests
+🥑 Nutrient-Rich Foods:
+Arshdeep encouraged eating fruits, vegetables, whole grains, lean proteins, and healthy fats. These give us vitamins, minerals, and energy to stay active and focused! 💪✨
 
-✅ The role of breaks in maintaining productivity
+🚫 Foods to Limit:
+He warned against highly processed foods, sugary snacks, and excessive fried items. Too much can lead to weight gain, fatigue, and health problems. ⚠️🍩🍟
 
-✅ The impact of scholarships in making education accessible
+💧 Hydration:
+Drinking enough water is super important for energy, focus, and overall well-being. 🥤💦
 
-✅ The motivation to strive for academic and personal excellence
+🧘 Mindful Eating:
+Eat with awareness and moderation, don’t rush meals, and listen to your body. 🍽️🕒
+
+💡 Practical Tips:
+
+Plan your meals ahead 📅
+
+Include variety in every meal 🍛🥗
+
+Don’t skip breakfast 🥣
+
+Balance is key ⚖️
+
+The lecture was super interactive 🤝, with Arshdeep answering questions and giving practical advice for everyday life.
+
+Takeaway: 📝
+Making healthy food choices isn’t just about dieting—it’s about long-term wellness, energy, and happiness. 🌟 So let’s eat smart and stay healthy! 🥳💚
